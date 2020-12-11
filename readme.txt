@@ -1,0 +1,1 @@
+aku seorang kapitan mempunyai pedang karatan, kalo berjalan jedak jeduk, aku seorang kapiten
